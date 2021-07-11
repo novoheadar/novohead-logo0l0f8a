@@ -1,1 +1,0 @@
-# novohead-logo0l0f8a
